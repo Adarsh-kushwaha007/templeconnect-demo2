@@ -1,2 +1,2 @@
 # templeconnect-demo2
-Bridging Indias temples with digital connectivity
+Bridging Indias spritual changes through digital connectivity.
